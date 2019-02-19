@@ -1,1 +1,0 @@
-Yuuki Aki <3
